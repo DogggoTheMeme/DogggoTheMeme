@@ -1,6 +1,6 @@
 # DOGGGO TOKEN [DGGG]
 
-![Dogggo](https://dogggo.biz/wp-content/uploads/2021/05/1-1.jpg)
+![Dogggo](https://dogggo.biz/wp-content/uploads/2021/05/Meme-Template-2.png)
 
 
 DOGGGO is the final meme and a BSC token
